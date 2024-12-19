@@ -1,4 +1,5 @@
-# Филипп Крючков [!](https://meloman.ru/media/upload/photos/Крючков_900х600_hJmgvRU.820x350.jpg).
+# Филипп Крючков
+ ![](https://meloman.ru/media/upload/photos/Крючков_900х600_hJmgvRU.820x350.jpg).
  
  - Контрабсист 
  - Дирижер 
